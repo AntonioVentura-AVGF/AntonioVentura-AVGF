@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @AntonioVentura-AVGF
 - 👀 I’m interested in FAZER ALGO GRANDE
-- 🌱 I’m currently learning PROGAMA
+- 🌱 I’m currently learning PROGRAMA
 - 💞️ I’m looking to collaborate on FAZER ALGO PARA MUNDA O MUNDO
 - 📫 How to reach me VENTURA
 - 😄 Pronouns: VENTURA
